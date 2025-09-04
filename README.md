@@ -1,1 +1,2 @@
-# Los-instrumentos-del-fot-grafo
+# Los-instrumentos-del-fotógrafo
+Antiguamente, los que usaban una cámara fotográfica tenían que conocerla bien para poder hacer fotografías, pues se regulaba a mano y había que tener cierta habilidad para conseguir resultados aceptables. Los que se aficionan a la fotografía solían poner un gran empeño personal en ello, que por lo general iba más allá del hecho meramente técnico de aprender el uso de un instrumento. Hoy, en cambio, cualquiera puede hacer fotos sin tener una preparación especial, después de echar un rápido vistazo al manual de instrucciones, pues con las cámaras modernas la toma fotográfica resulta sumamente fácil. 
